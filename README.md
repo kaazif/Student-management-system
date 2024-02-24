@@ -1,0 +1,5 @@
+![image](https://github.com/kaazif/Student-management-system/assets/73253420/ea847766-b7df-44b8-858b-ef1563cf79de)
+![image](https://github.com/kaazif/Student-management-system/assets/73253420/743b9a54-b37d-451e-8f38-8c7b54c0cbf9)
+![image](https://github.com/kaazif/Student-management-system/assets/73253420/f5a5af42-cba9-4530-9a72-6dc543c14652)
+![image](https://github.com/kaazif/Student-management-system/assets/73253420/4c872bec-d487-44bc-aa4a-b7d288115eef)
+![image](https://github.com/kaazif/Student-management-system/assets/73253420/73b364b6-fe6b-4a7f-aaee-42b88091e346)
